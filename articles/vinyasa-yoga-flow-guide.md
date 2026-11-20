@@ -7,7 +7,7 @@ Vinyasa is the style most people picture when they imagine a modern yoga class: 
 
 This guide explains what vinyasa really means, how it differs from other styles, how to perform the core movements safely, and how to practice a simple flow at home. It also covers common mistakes, modifications and who should take extra care.
 
-[IMAGE: Hero image: a practitioner moving through a vinyasa flow in a bright studio]
+![Ashtanga yoga practice](../images/6.jpg)
 
 ## What vinyasa means
 
