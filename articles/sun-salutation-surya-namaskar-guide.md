@@ -7,7 +7,7 @@ If yoga had a signature move, it would be Sun Salutation. Known in Sanskrit as S
 
 This guide explains where Sun Salutation comes from, how to practice a gentle beginner version, how to progress to the commonly taught Sun Salutation A and B, and how to adapt the sequence for wrists, back and tight hamstrings. It also covers breath, common mistakes and safety.
 
-[IMAGE: Hero image: a person raising their arms overhead in the first pose of Sun Salutation, morning light]
+![Ashtanga yoga practice](../images/5.jpg)
 
 ## What is Sun Salutation?
 
