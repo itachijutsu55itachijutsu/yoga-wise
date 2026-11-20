@@ -7,7 +7,7 @@ Most yoga styles ask you to move, build heat and work your muscles. Yin yoga doe
 
 This guide explains what yin yoga is, what it does and does not do, how to practice it safely, and how to perform eight classic poses. It also includes a 30-minute home sequence, advice on props and notes on who should be careful.
 
-[IMAGE: Hero image: a person resting in a supported butterfly pose with a bolster]
+![Ashtanga yoga practice](../images/7.jpg)
 
 ## What is yin yoga?
 
