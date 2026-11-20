@@ -7,7 +7,7 @@ Ashtanga yoga has a reputation. It is described as athletic, disciplined and dem
 
 This guide explains what Ashtanga yoga is, how its practice is organized, what is in the primary series, and how a beginner can approach it safely. It also covers common mistakes and who should take care before starting.
 
-[IMAGE: Hero image: a practitioner in a standing pose during an Ashtanga session]
+![Ashtanga yoga practice](../images/1.jpg)
 
 ## What is Ashtanga yoga?
 
