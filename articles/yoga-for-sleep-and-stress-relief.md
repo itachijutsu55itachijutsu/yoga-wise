@@ -7,7 +7,7 @@ Modern life is rarely short of stress, and for many people, stress and poor slee
 
 This guide looks at what the evidence says, then gives you a practical evening routine, three breathing techniques, a step-by-step guide to Yoga Nidra (a guided relaxation practice) and a list of everyday habits that support better sleep. It also explains when it is time to talk to a doctor.
 
-[IMAGE: Hero image: a softly lit bedroom with a yoga mat, blanket and bolster set out for an evening practice]
+![Ashtanga yoga practice](../images/10.jpg)
 
 ## What research says about yoga, stress and sleep
 
@@ -46,8 +46,6 @@ Do this 30 to 60 minutes before bed, in dim light. Wear comfortable clothing and
 8. **Savasana (5 minutes or more).** Lie flat with your eyes closed, covered with a blanket
 
 Avoid intense, heating practices late in the evening, as they may leave you feeling energized.
-
-![Ashtanga yoga practice](../images/10.jpg)
 
 ## Three calming breathing techniques
 
