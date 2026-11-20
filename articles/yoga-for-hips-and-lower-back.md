@@ -7,7 +7,7 @@ Hours at a desk, long commutes, hard workouts and plain old stress all have some
 
 This guide explains why hips and lower back often feel tight, what research says about yoga for back pain, and how to practice eight gentle poses. It also includes a short routine and, importantly, advice on when to see a health professional first, because back pain can have many causes.
 
-[IMAGE: Hero image: a person doing a gentle low lunge with hands on blocks]
+![Ashtanga yoga practice](../images/8.jpg)
 
 ## Why hips and lower back get stiff
 
