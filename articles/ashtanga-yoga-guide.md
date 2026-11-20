@@ -3,12 +3,11 @@ title: Ashtanga yoga: the primary series, the eight limbs and how to start safel
 description: A clear introduction to Ashtanga yoga, covering its history, the eight limbs, the structure of the primary series, how beginners can start, and safety considerations for this demanding style.
 date: 2026-12-05
 ---
+![Ashtanga yoga practice](../images/1.jpg)
+
 Ashtanga yoga has a reputation. It is described as athletic, disciplined and demanding, and its devotees often practice six days a week in the early morning. Yet underneath the reputation is a very structured and logical method, and many beginners can learn it with patience, modifications and good guidance. If you like routine, enjoy a challenge and want a practice that builds strength, stamina and focus, Ashtanga may suit you.
 
 This guide explains what Ashtanga yoga is, how its practice is organized, what is in the primary series, and how a beginner can approach it safely. It also covers common mistakes and who should take care before starting.
-
-![Ashtanga yoga practice](../images/1.jpg)
-
 ## What is Ashtanga yoga?
 
 "Ashtanga" is Sanskrit for "eight limbs." It refers to the eight-part path of yoga described in the ancient text known as the Yoga Sutras, attributed to Patanjali. The eight limbs are:
