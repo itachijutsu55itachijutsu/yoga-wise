@@ -7,7 +7,7 @@ If you have ever wished a teacher would explain exactly where to put your feet, 
 
 This guide explains where Iyengar yoga comes from, what its core principles are, how props are used, and how to practice six foundational poses with alignment cues. It also covers who benefits, safety, how to find a good class and common questions.
 
-[IMAGE: Hero image: a student in a standing pose using a block and a wall for support]
+![iyengar yoga practice](../images/3.jpg)
 
 ## Origins: who was B.K.S. Iyengar?
 
