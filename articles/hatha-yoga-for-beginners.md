@@ -7,7 +7,7 @@ If you have ever searched for a place to start with yoga, you have probably seen
 
 This guide explains what hatha yoga is, what a typical class feels like, what you need to start, and how to practice ten foundational poses safely. It finishes with a 30-minute routine you can do at home, a list of common mistakes, and a short section on who should take extra care.
 
-[IMAGE: Hero image: a beginner practicing mountain pose on a yoga mat in a bright room]
+![hatha yoga practice](../images/2.jpg)
 
 ## What hatha yoga actually is
 
