@@ -68,8 +68,6 @@ Stand with your feet together or slightly apart, big toes touching if comfortabl
 
 Stand with your feet about three to three and a half feet apart (roughly a leg's length). Turn your right foot out 90 degrees and your left foot slightly in. Keep both legs straight, but not locked. Extend your arms to the sides. Reach your torso to the right, hinging from the hip, then place your right hand on a block, your shin or the floor. Stretch your left arm up. Keep both sides of your waist long, and rotate your chest toward the ceiling. For beginners, place your back against a wall to feel the alignment. Hold for 20 to 30 seconds, then repeat on the other side.
 
-[IMAGE: Triangle pose with a hand on a block, back body against a wall]
-
 ### 3. Warrior II (Virabhadrasana II)
 
 From a wide stance, turn the right foot out and bend the right knee until it is over the ankle, keeping the thigh moving toward parallel to the floor if comfortable. Keep the left leg strong and straight, pressing through the outer edge of the left foot. Extend your arms at shoulder height, and turn your head to look over your right hand. Keep your torso centered over your pelvis. Hold for 20 to 30 seconds each side.
