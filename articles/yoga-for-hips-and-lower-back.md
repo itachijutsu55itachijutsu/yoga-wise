@@ -3,11 +3,12 @@ title: Yoga for tight hips and a stiff lower back: gentle poses and what researc
 description: A careful guide to yoga for tight hips and lower back stiffness, with eight gentle poses, a short routine, what research says about yoga and back pain, and when to see a doctor first.
 date: 2026-12-08
 ---
+
+![Ashtanga yoga practice](../images/4.jpg)
+
 Hours at a desk, long commutes, hard workouts and plain old stress all have something in common: they tend to leave the hips tight and the lower back stiff. Because the hips and lower back are closely connected, tension in one area often shows up in the other. Yoga is a popular way to address both, with gentle stretches that improve mobility and encourage you to notice how you sit, stand and move.
 
 This guide explains why hips and lower back often feel tight, what research says about yoga for back pain, and how to practice eight gentle poses. It also includes a short routine and, importantly, advice on when to see a health professional first, because back pain can have many causes.
-
-![Ashtanga yoga practice](../images/4.jpg)
 
 ## Why hips and lower back get stiff
 
