@@ -47,7 +47,7 @@ Do this 30 to 60 minutes before bed, in dim light. Wear comfortable clothing and
 
 Avoid intense, heating practices late in the evening, as they may leave you feeling energized.
 
-[IMAGE: Legs up the wall pose with a folded blanket under the hips]
+![Ashtanga yoga practice](../images/10.jpg)
 
 ## Three calming breathing techniques
 
