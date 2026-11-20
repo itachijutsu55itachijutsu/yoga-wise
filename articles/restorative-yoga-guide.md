@@ -7,7 +7,7 @@ Some days you do not need a workout. You need rest that actually works. Restorat
 
 This guide explains what restorative yoga is, how it differs from yin yoga, how to set up props properly, and how to practice six classic restorative poses. It also gives you a home sequence, safety notes and answers to common questions.
 
-![Ashtanga yoga practice](../images/4.jpg)
+![Ashtanga yoga practice](../images/9.jpg)
 
 ## What is restorative yoga?
 
