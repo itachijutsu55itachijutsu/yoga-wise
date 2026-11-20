@@ -7,7 +7,7 @@ You breathe around twenty thousand times a day, and most of those breaths happen
 
 This guide explains what pranayama means, how healthy breathing works, six beginner-friendly techniques, and how to build a short daily practice. It also includes safety information, because some breathing exercises are not suitable for everyone.
 
-[IMAGE: Hero image: a person sitting comfortably with a straight spine, hands resting on the knees, eyes closed]
+![Ashtanga yoga practice](../images/pranayama.jpg)
 
 ## What is pranayama?
 
